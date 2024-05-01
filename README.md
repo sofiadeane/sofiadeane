@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @sofiadeane
+- 👀 I’m interested in graphic design, music and anime!
+- 🌱 I’m currently in university enduring my computer engineering bachelor's degree.
+- 💞️ I’m looking to collaborate on fun, creative and challenging projects.
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I have two fur babies that id die for <3
